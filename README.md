@@ -1,3 +1,3 @@
-  ![](https://komarev.com/ghpvc/?username=nicoleist&label=мои+фанаты+&style=flat&abbreviated=true&base=400)
+![](https://komarev.com/ghpvc/?username=nicoleist&label=profile+views+&style=flat&abbreviated=true&base=400)
 
   
