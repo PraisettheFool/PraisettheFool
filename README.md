@@ -3,5 +3,11 @@
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/2fc53931-9f4f-46e0-ba94-e326d4d5cc93/d8b6e2l-ad17b598-d889-494c-bc47-5e3aab0ec4c0.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8yZmM1MzkzMS05ZjRmLTQ2ZTAtYmE5NC1lMzI2ZDRkNWNjOTMvZDhiNmUybC1hZDE3YjU5OC1kODg5LTQ5NGMtYmM0Ny01ZTNhYWIwZWM0YzAuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.6GBXaqGMCstX9AlUZXUmJmpN5OlL2Etdjx3NyQJtMYU)
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/73a47737-937b-44d7-9e59-61e40e4cd454/d762qfk-e119ba50-30be-401f-9e41-16187935b88f.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi83M2E0NzczNy05MzdiLTQ0ZDctOWU1OS02MWU0MGU0Y2Q0NTQvZDc2MnFmay1lMTE5YmE1MC0zMGJlLTQwMWYtOWU0MS0xNjE4NzkzNWI4OGYucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.hSHTdgOzozvU-2GRFnixMgHdIpQhRfSMn8rRb2Ayudw)
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3e017d01-d150-4b13-a368-09bc2c4054d8/d13vc92-ff29543a-1655-4238-842b-f07b47f8c3f7.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8zZTAxN2QwMS1kMTUwLTRiMTMtYTM2OC0wOWJjMmM0MDU0ZDgvZDEzdmM5Mi1mZjI5NTQzYS0xNjU1LTQyMzgtODQyYi1mMDdiNDdmOGMzZjcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.7GNohQU0sEilQxzgrkP8b2oplNLCc3ICaiTPBcbEnkc)
+![](https://64.media.tumblr.com/2b61907f1898ce97d36f6bb921ea8307/54118210702177f1-ae/s100x200/833f4f8d3756c847204b42fa61aaa58f9ac7f092.pnj)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=nicoleist&label=+++/ᐠ-+˕+•マ+痣&style=plastic&abbreviated=true&base=800) <img src="https://i.pinimg.com/originals/aa/05/96/aa059602df204c8d6892ae3cd6874d0a.gif" width="30" height="30">
+
+<img src="https://64.media.tumblr.com/9a6694efdddc1cc361f06ef27c99a3eb/4ee767c626e2ede8-9f/s540x810/f3d6d3920f0cadf09ac47aa0e0ef79c16d91fb52.gifv" width="515">
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ![](https://komarev.com/ghpvc/?username=nicoleist&label=+++/ᐠ-+˕+•マ+痣+&style=plastic&base=1500&color=c2848e) <img src="https://i.pinimg.com/originals/aa/05/96/aa059602df204c8d6892ae3cd6874d0a.gif" width="30" height="30">
+
+  ʿ  ִֶָ ❀‿ㅤㅤ<ins>**ɗȵί**</ins> ; ⲃⲇ⳽ⳕⲥ, ⲏⲟϻⲟⳏⲏⲟⲃⳕⲥ, ⲛⲇⳋⳕτⲟ<sub> & </sub>қⲟϻⲇⲉⳋⳕ ⲏⲇτⲉⲅ⳽   ㅤ ࿐ྀུ ❀ꦿ֗ 
