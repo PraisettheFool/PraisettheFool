@@ -10,4 +10,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ![](https://komarev.com/ghpvc/?username=nicoleist&label=+++/ᐠ-+˕+•マ+痣+&style=plastic&base=1500&color=c2848e) <img src="https://i.pinimg.com/originals/aa/05/96/aa059602df204c8d6892ae3cd6874d0a.gif" width="30" height="30">
 
-  ʿ  ִֶָ ❀‿ㅤㅤ<ins>**ɗȵί**</ins> ; ⲃⲇ⳽ⳕⲥ, ⲏⲟϻⲟⳏⲏⲟⲃⳕⲥ, ⲛⲇⳋⳕτⲟ<sub> & </sub>қⲟϻⲇⲉⳋⳕ ⲏⲇτⲉⲅ⳽   ㅤ ࿐ྀུ ❀ꦿ֗ 
+ㅤ  ʿ  ִֶָ ❀‿ㅤ<ins>**ɗȵί**</ins> ; ⲃⲇ⳽ⳕⲥ, ⲏⲟϻⲟⳏⲏⲟⲃⳕⲥ, ⲛⲇⳋⳕτⲟ<sub> & </sub>қⲟϻⲇⲉⳋⳕ ⲏⲇτⲉⲅ⳽ㅤ࿐ྀུ ❀ꦿ֗ 
