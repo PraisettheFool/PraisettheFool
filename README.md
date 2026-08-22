@@ -9,6 +9,6 @@
 
 <img src="https://64.media.tumblr.com/396107fe72f33f55c432bca165b8812c/tumblr_ppx3djbCpw1y97r5ho1_250.gifv" width="145" height="19"> <img src="https://64.media.tumblr.com/87eb003b3058dbc31f1cd0269089210f/tumblr_ppx3djbCpw1y97r5ho3_250.gifv" width="145" height="19"> <img src="https://64.media.tumblr.com/71a27ba67073fced8fade3550938a82d/tumblr_ppx3djbCpw1y97r5ho2_250.gifv" width="145" height="19"> <img src="https://64.media.tumblr.com/c553cfb9ca823592563370776048ce50/98103e4131ad4ece-22/s400x600/67d4dadada19a2824fa14665dbbb1c7826c6e801.gifv" width="150" height="20"> <img src="https://64.media.tumblr.com/bede00c60c5ce23df57753b839b2e08e/ac8e7a9a16bf933f-3c/s400x600/a47e75313c5ea3d65bc64017122b62246f252f0b.gifv" width="150" height="20">
  
-⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=nicoleist&label=demolition+lovers+&style=plastic&base=2500&color=171717)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=nicoleist&label=demolition+lovers+&style=plastic&base=2500&color=171717)⠀<sub> akechi goro & nagito komaeda irl </sub>
 
 
